@@ -1,2 +1,2 @@
 # JAVA RICE AMABA!!!
-javascript thank you!
+thank u seerrrrr!
